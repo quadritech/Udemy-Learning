@@ -1,0 +1,2 @@
+Hello, My name is Abdulquadri Mujeeb. 
+This is me going back to take my learning to become a web developer after so many stop and breakthrough due to some circumstances that are beyond control. This time by God's grace, am going to see it to the end. And my target is to finish up this course in the course of two months as I have learnt some of this things before.
